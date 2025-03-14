@@ -1,1 +1,0 @@
-# STINTSY_MCO1
